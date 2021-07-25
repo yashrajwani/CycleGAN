@@ -12,10 +12,5 @@ Team Members:
 
 ### Results
 
-![result1](https://i.ibb.co/gz0CwR8/Capture.jpg)
+![result1](https://i.ibb.co/s39JJhv/final.jpg)
 
-
-![result2](https://i.ibb.co/kGpYjry/qw.jpg)
-
-
-![result3](https://i.ibb.co/Rhz6SsV/x.jpg)
