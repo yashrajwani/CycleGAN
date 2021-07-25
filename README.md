@@ -16,4 +16,4 @@ Team Members:
 
 ![result1](https://i.ibb.co/s39JJhv/final.jpg)
 
-[Slide Deck](https://youtu.be/VS5K8zc2uTY)
+[Slide Deck](https://www.canva.com/design/DAElA6dd9Qk/LSftrJKtzoZZve9Zst9s9Q/view?utm_content=DAElA6dd9Qk&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton)
